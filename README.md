@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me : ctafadzwa@icloud.com / tafadzwatsungi@gmail.com
 - 😄 Pronouns: she / her
-- ⚡ Fun fact: im a content creators too haha
+- ⚡ Fun fact: im a content creator too haha
 
 <!---
 Taafaadzwaa/Taafaadzwaa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
